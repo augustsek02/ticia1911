@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Nakiwala Leticia
+- 👋 Hi, I’m Leticia Nakiwala 
 - 👀 I’m interested in transformation
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on how to transform the world in to a better place
